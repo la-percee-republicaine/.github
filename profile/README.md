@@ -9,7 +9,7 @@ Issue du mode de jeu "Clone Wars RP", en rejoignant L.P.R vous incarnerez un clo
 
 - [Trailers de la V11 (2024)](https://youtu.be/00yrBuMwaEU?si=FCyONBcVpCbn7WoV)
 - [Trailers de la V10 (2023)](https://youtu.be/yvdEEsVquCI?si=2HilGyfmDEVjLP_J)
-- [Trailers de la V8 (2022)](https://youtu.be/yvdEEsVquCI?si=DNs3BuPTVQd-RSdg)
+- [Trailers de la V8 (2022)]([https://youtu.be/yvdEEsVquCI?si=DNs3BuPTVQd-RSdg](https://youtu.be/BIMre6-nhZg?si=4YZd00tEIa7TIQbo))
 
 ## Screenshots
 
