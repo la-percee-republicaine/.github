@@ -41,6 +41,8 @@ Issue du mode de jeu "Clone Wars RP", en rejoignant L.P.R vous incarnerez un clo
 
 [![steam](https://img.shields.io/badge/steam-000?style=for-the-badge&logo=steam&logoColor=white)](https://steamcommunity.com/groups/LaPerceRepublicaine)
 
+[![instagram](https://img.shields.io/badge/instagram-000?style=for-the-badge&logo=instagram&logoColor=violet)](https://www.instagram.com/laperceerepublicaine/)
+
 
 ## Auteurs
 
